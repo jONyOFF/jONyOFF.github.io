@@ -1,2 +1,0 @@
-# jONyOFF.github.io
-Stronka
